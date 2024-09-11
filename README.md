@@ -58,6 +58,8 @@ DOVE加速器提供丰富的节点选择，主要包括美国、香港、台湾�
 
 5.试用和退款政策：注册即可试用2天，5天内不满意可以全额退款，有24小时在线的客服服务
 
+### DOVE加速器：[点击直达官网](https://dove8.cc/a.php?alavBTtF8UB)
+
 #Clash 官网 #Clash 官网下载 #Clash VPN官网 #Clash iOS 翻墙 #Clash iOS 安装包 #Clash iOS 客户端下载
 #iPad Clash 翻墙 #Clash for Android 官网 #Clash for Windows 客户端下载 #Clash Windows 客户端
 
