@@ -60,6 +60,8 @@ DOVE加速器提供丰富的节点选择，主要包括美国、香港、台湾�
 
 ### DOVE加速器：[点击直达官网](https://dove8.cc/a.php?alavBTtF8UB)
 
+##### 如果大家喜欢可以点击一下心
+
 #Clash 官网 #Clash 官网下载 #Clash VPN官网 #Clash iOS 翻墙 #Clash iOS 安装包 #Clash iOS 客户端下载
 #iPad Clash 翻墙 #Clash for Android 官网 #Clash for Windows 客户端下载 #Clash Windows 客户端
 
